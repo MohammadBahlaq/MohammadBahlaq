@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **any thing**
 
-- 📫 How to reach me **Bahlaq57@gmail.com**
+- 📫 How to reach me **Mohammad.bahlaq99@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1tFt0AjWQufFyCy_qnQDFwWXAB0QeUsQb/view?usp=sharing](https://drive.google.com/file/d/1tFt0AjWQufFyCy_qnQDFwWXAB0QeUsQb/view?usp=sharing)
 
