@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Flutter development**
 
-- 💬 Ask me about **any thing**
+- 💬 Ask me about **Flutter**
 
 - 📫 How to reach me **Mohammad.bahlaq99@gmail.com**
 
